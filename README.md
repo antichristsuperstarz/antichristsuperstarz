@@ -22,7 +22,7 @@
 
   <p align="center"
 
-![image](https://watermelon.crd.co/assets/images/gallery05/99b7a107.gif?v=14238bdb)ᛝྀིྀིA hikkikomori who can’t decide between becoming a popstar or rockstar & has a passionate love for horror! I promise I don't bite but if you're unwelcome, ${\color{hotpink} \text{I'LL PUT A DEADLY HEX ON YOU!}}$ ![image](https://files.catbox.moe/0wea1y.gif) My strawpaw shares the infos, take a look!
+![image](https://watermelon.crd.co/assets/images/gallery05/99b7a107.gif?v=14238bdb)ᛝྀིྀིA hikkikomori who can’t decide between becoming a popstar or rockstar & has a passionate love for horror! I promise I don't bite but if you're unwelcome, ${\color{hotpink} \text{I'LL PUT A DEADLY HEX ON YOU!}}$ My strawpaw shares the infos, take a look!
 
   <p align="center"
 
@@ -30,7 +30,7 @@
 
 <p align="center"
 
- ᛝྀིྀི ${\color{hotpink} \text{"Ew, ur so イタイ!!!"}}$
+![image](https://watermelon.crd.co/assets/images/gallery05/99b7a107.gif?v=14238bdb)ᛝྀིྀི ${\color{hotpink} \text{"You’re so.. weird…"}}$
   I mean... Sure![image](https://watermelon.crd.co/assets/images/gallery03/baebd4dd.gif?v=14238bdb) I'm free from the dead culture & I'm loving every seconds of my freedom! You can't clip an angel's wings, darling!~ Doesn’t that make me an undead?
 
   
