@@ -7,7 +7,7 @@
 
 <p align="center"
 
-![image](https://64.media.tumblr.com/f07e01fbc939d8f76403aa777cca1d36/804f5534ef40bfad-57/s1280x1920/bb98cb73b09bda54dd24b44239198bf3c1a02468.pnj)
+![image](https://64.media.tumblr.com/2efd9759b398ff4457394587a427ac89/df19006960dbc710-1a/s1280x1920/b439b13b8e31a5ddce9fa4f276ecc6ecdec279de.pnj)
 
  <p align="center"
    
@@ -58,7 +58,7 @@
 
   ${\color{hotpink} \text{"…BUT I WANT TO WEAR YOUR SKIN!"}}$
 
-![image](https://64.media.tumblr.com/fdffff12c49a099f7e30d5f645be77de/a187f2f60d10ca48-29/s640x960/66abca27360c904f1c21f807f2e1bd677bbc14c8.jpg)
+![image](https://64.media.tumblr.com/12a8058078c2bc5d95998454f98489ce/df19006960dbc710-24/s1280x1920/7ac64e86b359df548f5543cad80910440d244741.pnj)
 
 
 ![image](https://64.media.tumblr.com/4854573de6a70c12a7561f05eeee4996/bf2611b1e77359db-a3/s1280x1920/601d395045f638144a6573605a5b9d0464045065.gif)
