@@ -7,11 +7,11 @@
 
 <p align="center"
 
-![image](https://64.media.tumblr.com/2efd9759b398ff4457394587a427ac89/df19006960dbc710-1a/s1280x1920/b439b13b8e31a5ddce9fa4f276ecc6ecdec279de.pnj)
+![image](https://files.catbox.moe/78encu.gif)
 
  <p align="center"
    
- ${\color{hotpink} \text{"I WOULDN’T SAY THAT I’M JEALOUS…"}}$
+ ${\color{hotpink} \text{"Chemical synergy, monster energy, rotten strawberry, sweet toxicity, contradictory"}}$
 
 
   <p align="center"
@@ -32,8 +32,7 @@
 
 <p align="center"
 
-![image](https://files.catbox.moe/q94ohm.gif)ᛝྀིྀི ${\color{hotpink} \text{"You’re so.. weird…"}}$
-  I mean... Duh![image](https://files.catbox.moe/4agown.gif)I'm free from the dead culture & I'm loving every seconds of my freedom! Consider me an undead then with clipped wings!
+![image](https://files.catbox.moe/q94ohm.gif)ᛝྀིྀི ${\color{hotpink} \text{"What is wrong with you?"}}$ Lots of things, lots of pills, lots of disorders…![image](https://files.catbox.moe/0wea1y.gif) Please interact with care by being mindful of such. 
 
   
 <p align="center"
@@ -56,9 +55,9 @@
 
 <p align="center"
 
-  ${\color{hotpink} \text{"…BUT I WANT TO WEAR YOUR SKIN!"}}$
+  ${\color{hotpink} \text{"Was my life worth corrupting?"}}$
 
-![image](https://64.media.tumblr.com/12a8058078c2bc5d95998454f98489ce/df19006960dbc710-24/s1280x1920/7ac64e86b359df548f5543cad80910440d244741.pnj)
+![image](https://files.catbox.moe/u1n7c7.jpeg)
 
 
 ![image](https://64.media.tumblr.com/4854573de6a70c12a7561f05eeee4996/bf2611b1e77359db-a3/s1280x1920/601d395045f638144a6573605a5b9d0464045065.gif)
