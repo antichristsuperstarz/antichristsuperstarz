@@ -14,23 +14,23 @@
 
   <p align="center"
 
-   ![image](https://64.media.tumblr.com/41ea192bce3209185fd47b6256c9490b/4160be3cc2b84620-cf/s250x400/2c585e8494b3b4750d3aaaba0f0bee30edac0a90.gif)![image](https://64.media.tumblr.com/6b9ead9d260cfbe56dd78ff912278e4f/9c38103123341dda-4f/s100x200/b81690f6cea2efd795e4f39fde9358a2ca110d85.pnj)![image](https://64.media.tumblr.com/41ea192bce3209185fd47b6256c9490b/4160be3cc2b84620-cf/s250x400/2c585e8494b3b4750d3aaaba0f0bee30edac0a90.gif)
+   ![image](https://watermelon.crd.co/assets/images/gallery16/6c24a04e.png?v=14238bdb)![image](https://64.media.tumblr.com/6b9ead9d260cfbe56dd78ff912278e4f/9c38103123341dda-4f/s100x200/b81690f6cea2efd795e4f39fde9358a2ca110d85.pnj)![image](https://watermelon.crd.co/assets/images/gallery16/6c24a04e.png?v=14238bdb)
 
 
 
   <p align="center"
 
-![image](https://files.catbox.moe/q94ohm.gif)ᛝྀིྀིAn angel? who wish to be a superstar but doomed to be tied to the horrors of their mind. I promise I don't bite but if you're unwelcome, ${\color{hotpink} \text{I’LL HUNT YOUR NARRATIVE.}}$ My strawpaw shares the infos, take a look!
+![image](https://files.catbox.moe/q94ohm.gif)ᛝྀིྀིA hikkikomori who wish to be a superstar but doomed to be tied to the horrors of their mind. I promise I don't bite but if you're unwelcome, ${\color{hotpink} \text{I’LL HUNT YOUR NARRATIVE.}}$ My strawpaw shares the infos, take a look!
 
 
   <p align="center"
 
-   ![image](https://64.media.tumblr.com/41ea192bce3209185fd47b6256c9490b/4160be3cc2b84620-cf/s250x400/2c585e8494b3b4750d3aaaba0f0bee30edac0a90.gif)![image](https://64.media.tumblr.com/da0d13732b70d8a55622695a628e3e0a/9c38103123341dda-78/s100x200/5f83c8222511ce4e91604c5495a9a1f7d8ca1b40.pnj)![image](https://64.media.tumblr.com/41ea192bce3209185fd47b6256c9490b/4160be3cc2b84620-cf/s250x400/2c585e8494b3b4750d3aaaba0f0bee30edac0a90.gif)
+   ![image](https://watermelon.crd.co/assets/images/gallery16/6c24a04e.png?v=14238bdb)![image](https://64.media.tumblr.com/b866ab959f501832c548089693ac4ef2/9c38103123341dda-48/s100x200/1b7869eea741f1aa1b389652f0a384d126d0b906.gif)![image](https://watermelon.crd.co/assets/images/gallery16/6c24a04e.png?v=14238bdb)
 
 
 <p align="center"
 
-![image](https://files.catbox.moe/q94ohm.gif)ᛝྀིྀི ${\color{hotpink} \text{"What is wrong with you?"}}$ Lots of things, lots of pills, lots of disorders…![image](https://files.catbox.moe/0wea1y.gif) Please interact with care by being mindful of such. 
+![image](https://files.catbox.moe/q94ohm.gif)ᛝྀིྀི ${\color{hotpink} \text{"What is wrong with you?"}}$ Lots of things, lots of meds, lots of disorders…![image](https://files.catbox.moe/0wea1y.gif) Please interact with care by being mindful of such. 
 
   
 <p align="center"
