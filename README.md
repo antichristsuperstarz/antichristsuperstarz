@@ -1,6 +1,4 @@
-<p align="center"
 
-![image](https://camo.githubusercontent.com/218af22cbf42fab1fa21bedb4aca5701e6dd6f8a3a83a0d53c242a6362647220/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f32356638383333303332343563616530656438306439393435396533393465382f646439646439383639636136373066302d65322f73313030783230302f343232643530336363383663313561646661613037663733383966333062663465386234333462382e67696676)
 
 ![image](https://64.media.tumblr.com/4854573de6a70c12a7561f05eeee4996/bf2611b1e77359db-a3/s1280x1920/601d395045f638144a6573605a5b9d0464045065.gif)
 
@@ -16,18 +14,18 @@
 
   <p align="center"
 
-   ![image](https://64.media.tumblr.com/41ea192bce3209185fd47b6256c9490b/4160be3cc2b84620-cf/s250x400/2c585e8494b3b4750d3aaaba0f0bee30edac0a90.gif)![image](https://64.media.tumblr.com/cf4d2f979eeb2f2f03eb0c12b3f7c5c4/08b29c89cf8853c4-bb/s250x400/5fcd85b9ec50c78f453e35a0131798c0378eee9f.gif)![image](https://64.media.tumblr.com/41ea192bce3209185fd47b6256c9490b/4160be3cc2b84620-cf/s250x400/2c585e8494b3b4750d3aaaba0f0bee30edac0a90.gif)
+   ![image](https://64.media.tumblr.com/41ea192bce3209185fd47b6256c9490b/4160be3cc2b84620-cf/s250x400/2c585e8494b3b4750d3aaaba0f0bee30edac0a90.gif)![image](https://64.media.tumblr.com/6b9ead9d260cfbe56dd78ff912278e4f/9c38103123341dda-4f/s100x200/b81690f6cea2efd795e4f39fde9358a2ca110d85.pnj)![image](https://64.media.tumblr.com/41ea192bce3209185fd47b6256c9490b/4160be3cc2b84620-cf/s250x400/2c585e8494b3b4750d3aaaba0f0bee30edac0a90.gif)
 
 
 
   <p align="center"
 
-![image](https://files.catbox.moe/q94ohm.gif)ᛝྀིྀིAn angel? who wish to be a superstar but doomed to be tied to the horrors of the circus of their mind. I promise I don't bite but if you're unwelcome, ${\color{hotpink} \text{I’LL HUNT YOUR NARRATIVE.}}$ My strawpaw shares the infos, take a look!
+![image](https://files.catbox.moe/q94ohm.gif)ᛝྀིྀིAn angel? who wish to be a superstar but doomed to be tied to the horrors of their mind. I promise I don't bite but if you're unwelcome, ${\color{hotpink} \text{I’LL HUNT YOUR NARRATIVE.}}$ My strawpaw shares the infos, take a look!
 
 
   <p align="center"
 
-   ![image](https://64.media.tumblr.com/41ea192bce3209185fd47b6256c9490b/4160be3cc2b84620-cf/s250x400/2c585e8494b3b4750d3aaaba0f0bee30edac0a90.gif)![image](https://64.media.tumblr.com/8eacfc4ca406cbe9ced8e0add16a7812/cd01fd9b8afcf6e7-7c/s100x200/140fcbfdad964b84335cfa9821c3213016f8b5be.gif)![image](https://64.media.tumblr.com/41ea192bce3209185fd47b6256c9490b/4160be3cc2b84620-cf/s250x400/2c585e8494b3b4750d3aaaba0f0bee30edac0a90.gif)
+   ![image](https://64.media.tumblr.com/41ea192bce3209185fd47b6256c9490b/4160be3cc2b84620-cf/s250x400/2c585e8494b3b4750d3aaaba0f0bee30edac0a90.gif)![image](https://64.media.tumblr.com/da0d13732b70d8a55622695a628e3e0a/9c38103123341dda-78/s100x200/5f83c8222511ce4e91604c5495a9a1f7d8ca1b40.pnj)![image](https://64.media.tumblr.com/41ea192bce3209185fd47b6256c9490b/4160be3cc2b84620-cf/s250x400/2c585e8494b3b4750d3aaaba0f0bee30edac0a90.gif)
 
 
 <p align="center"
@@ -37,7 +35,7 @@
   
 <p align="center"
 
-![image](https://files.catbox.moe/ry3045.gif)*DNI IF YOU’RE GONNA JUDGE MY ACTIONS, I KNOW I HAVE PROBLEMS YOU’RE NIT FIXING ANYTHING BY COMMENTING ON IT.*![image](https://files.catbox.moe/ry3045.gif)
+![image](https://files.catbox.moe/ry3045.gif)*DNI IF YOU’RE GONNA JUDGE MY ACTIONS, I KNOW I HAVE PROBLEMS YOU’RE NOT FIXING ANYTHING BY COMMENTING ON IT.*![image](https://files.catbox.moe/ry3045.gif)
 
   <details>
   <summary>BLINKIES.</summary>
@@ -60,8 +58,9 @@
 
   ${\color{hotpink} \text{"You might as well be the next!"}}$
 
+  <p align="center"
 
-
+![image](https://64.media.tumblr.com/ac6e40118ab0f1de6a18514115d5508b/38afe45c6cc24aa5-f3/s400x600/35eadb3ba7066dadad52733f943ab832711137c0.gif)
 
 ![image](https://64.media.tumblr.com/4854573de6a70c12a7561f05eeee4996/bf2611b1e77359db-a3/s1280x1920/601d395045f638144a6573605a5b9d0464045065.gif)
 
