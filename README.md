@@ -9,7 +9,7 @@
 
  <p align="center"
    
- ${\color{hotpink} \text{"Was my life worth corrupting?"}}$
+ ${\color{crimson} \text{"Was my life worth corrupting?"}}$
 
 
   <p align="center"
@@ -20,7 +20,7 @@
 
   <p align="center"
 
-![image](https://mocha.crd.co/assets/images/gallery27/bc044c07_original.gif?v=667e73fe)ᛝྀིྀིA hikkikomori who wish to be a superstar but doomed to be tied to the horrors of their mind. I promise I don't bite but if you're unwelcome, ${\color{hotpink} \text{I’LL HUNT YOUR NARRATIVE.}}$ My strawpaw shares the infos, take a look!
+![image](https://mocha.crd.co/assets/images/gallery27/bc044c07_original.gif?v=667e73fe)ᛝྀིྀིA hikkikomori who wish to be a superstar but doomed to be tied to the horrors of their mind. I promise I don't bite but if you're unwelcome, ${\color{crimson} \text{I’LL HUNT YOUR NARRATIVE.}}$ My strawpaw shares the infos, take a look!
 
 
   <p align="center"
@@ -30,7 +30,7 @@
 
 <p align="center"
 
-![image](https://mocha.crd.co/assets/images/gallery27/bc044c07_original.gif?v=667e73fe)ᛝྀིྀི ${\color{hotpink} \text{"What is wrong with you?"}}$ Lots of things, lots of meds, lots of disorders…![image](https://files.catbox.moe/0wea1y.gif) Please interact with care by being mindful of such. 
+![image](https://mocha.crd.co/assets/images/gallery27/bc044c07_original.gif?v=667e73fe)ᛝྀིྀི ${\color{crimson} \text{"What is wrong with you?"}}$ Lots of things, lots of meds, lots of disorders…![image](https://files.catbox.moe/0wea1y.gif) Please interact with care by being mindful of such. 
 
   
 <p align="center"
@@ -56,7 +56,7 @@
 
 <p align="center"
 
-  ${\color{hotpink} \text{"You might as well be the next!"}}$
+  ${\color{crimson} \text{"You might as well be the next!"}}$
 
   <p align="center"
 
