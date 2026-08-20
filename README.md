@@ -20,7 +20,7 @@
 
   <p align="center"
 
-![image](https://mocha.crd.co/assets/images/gallery27/bc044c07_original.gif?v=667e73fe)ᛝྀིྀིA hikkikomori who wish to be a superstar but doomed to be tied to the horrors of their mind. I promise I don't bite but if you're unwelcome, ${\color{grey} \text{I’LL HUNT YOUR NARRATIVE.}}$ My strawpaw shares the infos, take a look!
+![image](https://mocha.crd.co/assets/images/gallery27/bc044c07_original.gif?v=667e73fe)ᛝྀིྀིA hikkikomori who wish to be a superstar but fell in love, therefore fell dead. I promise I don't bite but if you're unwelcome, ${\color{grey} \text{I’LL HUNT YOUR NARRATIVE.}}$ My strawpaw shares the infos, take a look!
 
 
   <p align="center"
