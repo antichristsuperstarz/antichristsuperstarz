@@ -30,7 +30,7 @@
 
 <p align="center"
 
-![image](https://mocha.crd.co/assets/images/gallery27/bc044c07_original.gif?v=667e73fe)ᛝྀིྀི ${\color{grey} \text{"What is wrong with you?"}}$ Lots of things, lots of meds, lots of disorders…![image](https://files.catbox.moe/4qwvdn.gif) Please interact with care by being mindful of such. 
+![image](https://mocha.crd.co/assets/images/gallery27/bc044c07_original.gif?v=667e73fe)ᛝྀིྀི ${\color{grey} \text{"Ew you’re low-key cringe…"}}$ Duh, idc HAHAHA! ![image](https://files.catbox.moe/4qwvdn.gif) Please interact with care still, love & kindness!
 
   
 <p align="center"
