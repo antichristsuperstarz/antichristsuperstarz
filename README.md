@@ -30,7 +30,7 @@
 
 <p align="center"
 
-![image](https://mocha.crd.co/assets/images/gallery27/bc044c07_original.gif?v=667e73fe)ᛝྀིྀི ${\color{grey} \text{"Ew you’re low-key cringe…"}}$ Duh, idc HAHAHA! ![image](https://files.catbox.moe/4qwvdn.gif) Please interact with care still, love & kindness!
+![image](https://mocha.crd.co/assets/images/gallery27/bc044c07_original.gif?v=667e73fe)ᛝྀིྀི ${\color{grey} \text{"Ew you’re low-key cringe…"}}$ Duh, idc HAHAHA! ![image](https://files.catbox.moe/4qwvdn.gif) Please interact with care still, got lots of things going on & I remain a being as sentient as you are.
 
   
 <p align="center"
