@@ -9,7 +9,7 @@
 
  <p align="center"
    
- ${\color{grey} \text{"Was my life worth corrupting?"}}$
+ ${\color{grey} \text{"Fell from heaven to ruin your life."}}$
 
 
   <p align="center"
@@ -20,7 +20,7 @@
 
   <p align="center"
 
-![image](https://mocha.crd.co/assets/images/gallery27/bc044c07_original.gif?v=667e73fe)ᛝྀིྀིA hikkikomori who wish to be a superstar but fell in love, therefore fell dead. I promise I don't bite but if you're unwelcome, ${\color{grey} \text{I’LL HUNT YOUR NARRATIVE.}}$ My strawpaw shares the about me, take a look!
+![image](https://mocha.crd.co/assets/images/gallery27/bc044c07_original.gif?v=667e73fe)ᛝྀིྀིA hikkikomori who wish to be a superstar but fell in love, therefore fell dead. Their remains are here as a cyber angel! I promise I don't bite but if you're unwelcome, ${\color{grey} \text{I’LL HUNT YOUR NARRATIVE.}}$ My strawpaw shares the about me, take a look!
 
 
   <p align="center"
