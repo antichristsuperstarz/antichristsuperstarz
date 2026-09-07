@@ -19,7 +19,7 @@
 
   <p align="center"
 
-![image](https://watermelon.crd.co/assets/images/gallery03/9cc3f38c.gif?)ᛝྀིྀིA little bunny who wished to be a superstar but fell in the claws of the circus! I promise I don't bite but if you're unwelcome, ${\color{fa9bbd} \text{I’LL SEND YOU TO THE BUTCHER.}}$ My strawpaw shares the about me, take a look!
+![image](https://watermelon.crd.co/assets/images/gallery03/9cc3f38c.gif?)ᛝྀིྀིA little bunny who wished to be a superstar but fell in the claws of the circus! I promise I don't bite but if you're unwelcome, ${\color{fa9ddb} \text{I’LL SEND YOU TO THE BUTCHER.}}$ My strawpaw shares the about me, take a look!
 
 
   <p align="center"
@@ -29,7 +29,7 @@
 
 <p align="center"
 
-![image](https://watermelon.crd.co/assets/images/gallery03/9cc3f38c.gif?)ᛝྀིྀི ${\color{fa9bbd} \text{"Ew you’re low-key cringe…"}}$ Duh, idc HAHAHA! ![image](https://files.catbox.moe/4qwvdn.gif) Please interact with care still, got lots of things going on & I remain a being as sentient as you are. Also plz don’t consider me as part of the fandom of any of my interests, I have my reasons to enjoy stuff in my own bubble…
+![image](https://watermelon.crd.co/assets/images/gallery03/9cc3f38c.gif?)ᛝྀིྀི ${\color{fa9ddb} \text{"Ew you’re low-key cringe…"}}$ Duh, idc HAHAHA! ![image](https://files.catbox.moe/4qwvdn.gif) Please interact with care still, got lots of things going on & I remain a being as sentient as you are. Also plz don’t consider me as part of the fandom of any of my interests, I have my reasons to enjoy stuff in my own bubble…
 
   
 <p align="center"
