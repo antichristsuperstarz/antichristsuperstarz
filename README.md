@@ -55,7 +55,7 @@
 
 <p align="center"
 
-  ${\color{fa9ddb} \text{"Hop, hop running away with your dirty little paws."}}$
+  ${\color{fa9ddb} \text{"Hop, hop running away with dirt on your little paws."}}$
 
   <p align="center"
 
