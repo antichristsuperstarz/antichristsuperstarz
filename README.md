@@ -1,6 +1,5 @@
 
 
-![image](https://64.media.tumblr.com/4854573de6a70c12a7561f05eeee4996/bf2611b1e77359db-a3/s1280x1920/601d395045f638144a6573605a5b9d0464045065.gif)
 
 
 <p align="center"
@@ -20,7 +19,7 @@
 
   <p align="center"
 
-![image](https://mocha.crd.co/assets/images/gallery27/bc044c07_original.gif?v=667e73fe)ᛝྀིྀིA hikkikomori who wished to be a superstar but fell in love! I promise I don't bite but if you're unwelcome, ${\color{grey} \text{I’LL HUNT YOUR NARRATIVE.}}$ My strawpaw shares the about me, take a look & join our circus!
+![image](https://mocha.crd.co/assets/images/gallery27/bc044c07_original.gif?v=667e73fe)ᛝྀིྀིA hikkikomori who wished to be a superstar but fell in love! I promise I don't bite but if you're unwelcome, ${\color{fa9bbd} \text{I’LL SEND YOU TO THE BUTCHER.}}$ My strawpaw shares the about me, take a look & join our circus!
 
 
   <p align="center"
@@ -30,7 +29,7 @@
 
 <p align="center"
 
-![image](https://mocha.crd.co/assets/images/gallery27/bc044c07_original.gif?v=667e73fe)ᛝྀིྀི ${\color{grey} \text{"Ew you’re low-key cringe…"}}$ Duh, idc HAHAHA! ![image](https://files.catbox.moe/4qwvdn.gif) Please interact with care still, got lots of things going on & I remain a being as sentient as you are. Also plz don’t consider me as part of the fandom of any of my interests, I have my reasons to enjoy stuff in my own bubble…
+![image](https://mocha.crd.co/assets/images/gallery27/bc044c07_original.gif?v=667e73fe)ᛝྀིྀི ${\color{fa9bbd} \text{"Ew you’re low-key cringe…"}}$ Duh, idc HAHAHA! ![image](https://files.catbox.moe/4qwvdn.gif) Please interact with care still, got lots of things going on & I remain a being as sentient as you are. Also plz don’t consider me as part of the fandom of any of my interests, I have my reasons to enjoy stuff in my own bubble…
 
   
 <p align="center"
@@ -62,7 +61,6 @@
 
 ![image](https://files.catbox.moe/9y8pjp.gif)
 
-![image](https://64.media.tumblr.com/4854573de6a70c12a7561f05eeee4996/bf2611b1e77359db-a3/s1280x1920/601d395045f638144a6573605a5b9d0464045065.gif)
 
 
 
