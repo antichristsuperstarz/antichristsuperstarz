@@ -5,11 +5,11 @@
 
 <p align="center"
 
-![image](https://files.catbox.moe/vijdu4.gif)
+![image](https://files.catbox.moe/cqebib.gif)
 
  <p align="center"
    
- ${\color{grey} \text{"Fell from heaven to ruin your life."}}$
+ ${\color{fa9ddb} \text{"Fell from heaven to ruin your life."}}$
 
 
   <p align="center"
@@ -20,7 +20,7 @@
 
   <p align="center"
 
-![image](https://mocha.crd.co/assets/images/gallery27/bc044c07_original.gif?v=667e73fe)ᛝྀིྀིA hikkikomori who wished to be a superstar but fell in love! I promise I don't bite but if you're unwelcome, ${\color{grey} \text{I’LL HUNT YOUR NARRATIVE.}}$ My strawpaw shares the about me, take a look!
+![image](https://mocha.crd.co/assets/images/gallery27/bc044c07_original.gif?v=667e73fe)ᛝྀིྀིA hikkikomori who wished to be a superstar but fell in love! I promise I don't bite but if you're unwelcome, ${\color{grey} \text{I’LL HUNT YOUR NARRATIVE.}}$ My strawpaw shares the about me, take a look & join our circus!
 
 
   <p align="center"
@@ -56,11 +56,11 @@
 
 <p align="center"
 
-  ${\color{grey} \text{"You might as well be the next!"}}$
+  ${\color{fa9ddb} \text{"You might as well be the next!"}}$
 
   <p align="center"
 
-![image](https://64.media.tumblr.com/ac6e40118ab0f1de6a18514115d5508b/38afe45c6cc24aa5-f3/s400x600/35eadb3ba7066dadad52733f943ab832711137c0.gif)
+![image](https://files.catbox.moe/9y8pjp.gif)
 
 ![image](https://64.media.tumblr.com/4854573de6a70c12a7561f05eeee4996/bf2611b1e77359db-a3/s1280x1920/601d395045f638144a6573605a5b9d0464045065.gif)
 
