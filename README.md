@@ -34,7 +34,7 @@
   
 <p align="center"
 
-![image](https://files.catbox.moe/ry3045.gif)*DNI IF YOU’RE GONNA JUDGE MY ACTIONS, I KNOW I HAVE PROBLEMS YOU’RE NOT FIXING ANYTHING BY COMMENTING ON IT.*![image](https://files.catbox.moe/ry3045.gif)
+![image](https://files.catbox.moe/ry3045.gif)*DNI IF YOU’RE GONNA JUDGE MY ACTIONS, I KNOW I HAVE PROBLEMS YOU’RE NOT FIXING ANYTHING BY COMMENTING ON IT. IF YOURE ON THE BASIC DNI CRITERIA, RADQUEER, PROHARA, ANTI OF ANY SORT DONT EVEN TRY TO APPROACH.*![image](https://files.catbox.moe/ry3045.gif)
 
   <details>
   <summary>BLINKIES.</summary>
