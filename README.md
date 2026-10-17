@@ -21,9 +21,8 @@
 
 ![image](https://watermelon.crd.co/assets/images/gallery03/9cc3f38c.gif?)ᛝྀིྀིA little bunny who wished to be a superstar but fell in the claws of the circus! I promise I don't bite but if you're unwelcome, ${\color{fa9ddb} \text{I’LL SEND YOU TO THE BUTCHER.}}$ My strawpaw shares the about me, take a look!
 
-![image](https://64.media.tumblr.com/b1861c14d62dfdafa4262ae0e1b77d16/82f062ad64b65975-03/s250x400/a5d186ea24f659ac229509f0ba05bc06cbee8cbc.gif) ${\color{fa9ddb} \text{“Why coffincest?”}}$
+![image](https://64.media.tumblr.com/b1861c14d62dfdafa4262ae0e1b77d16/82f062ad64b65975-03/s250x400/a5d186ea24f659ac229509f0ba05bc06cbee8cbc.gif) ${\color{fa9ddb} \text{Have you looked at the mirror lately?”}}$
 
-Many random reasons… I have a weird aesthetic obsession with coffins & I love the suffix *cest* mainly along with other of my top fav *phrenia*, *philia*, *phage*, *vore*. Aren’t words so beautiful?
 
 
   <p align="center"
