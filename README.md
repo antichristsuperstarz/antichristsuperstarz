@@ -39,6 +39,10 @@
 
 ![image](https://files.catbox.moe/ry3045.gif)*DNI IF YOU’RE GONNA JUDGE MY ACTIONS, I KNOW I HAVE PROBLEMS YOU’RE NOT FIXING ANYTHING BY COMMENTING ON IT. IF YOURE ON THE BASIC DNI CRITERIA, RADQUEER, PROHARA, PRO-AI, ANTI OF ANY SORT DONT EVEN TRY TO APPROACH.*![image](https://files.catbox.moe/ry3045.gif)
 
+<p align=“center”
+ 
+I’d kindly ask to avoid hiding me in ponytown in case I might cover you, let’s just DNI or tell me so I can block chats to be sure I don’t forget you don’t want me to be near! no offense taken.
+
 
   <details>
   <summary>BLINKIES.</summary>
