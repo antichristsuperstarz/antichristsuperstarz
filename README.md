@@ -4,7 +4,8 @@
 
 <p align="center"
 
-![image](https://files.catbox.moe/cqebib.gif)
+![image](https://media1.tenor.com/m/kE7VAmEYZWAAAAAC/needy-girl-overdose.gif)
+
 
  <p align="center"
    
@@ -19,9 +20,9 @@
 
   <p align="center"
 
-![image](https://watermelon.crd.co/assets/images/gallery03/9cc3f38c.gif?)ᛝྀིྀིTried to be an internet angel but failing miserably as a dumb hikkikomori. I promise I don't bite but if you're unwelcome, ${\color{fa9ddb} \text{I’LL PUT A DEADLY HEX ON YOU.}}$ My strawpaw shares the about me, take a look!
+![image](https://files.catbox.moe/d3bz00.gif)ᛝྀིྀིTried to be an internet angel but failing miserably as a dumb hikkikomori. I promise I don't bite but if you're unwelcome, ${\color{fa9ddb} \text{I’LL PUT A DEADLY HEX ON YOU.}}$ My strawpaw shares the about me, take a look!
 
-![image](https://64.media.tumblr.com/b1861c14d62dfdafa4262ae0e1b77d16/82f062ad64b65975-03/s250x400/a5d186ea24f659ac229509f0ba05bc06cbee8cbc.gif) ${\color{fa9ddb} \text{“Have you looked at the mirror lately?”}}$
+![image](https://64.media.tumblr.com/b1861c14d62dfdafa4262ae0e1b77d16/82f062ad64b65975-03/s250x400/a5d186ea24f659ac229509f0ba05bc06cbee8cbc.gif) ${\color{fa9ddb} \text{“Was your life worth corrupting?”}}$
 
 
 
@@ -32,7 +33,7 @@
 
 <p align="center"
 
-![image](https://watermelon.crd.co/assets/images/gallery03/9cc3f38c.gif?)ᛝྀིྀི ${\color{fa9ddb} \text{"Ew you’re low-key cringe…"}}$ Duh, idc HAHAHA! ![image](https://files.catbox.moe/4qwvdn.gif) Please interact with care still, got lots of things going on & I remain a being as sentient as you are. Also plz don’t consider me as part of the fandom of any of my interests, I have my reasons to enjoy stuff in my own bubble…
+![image](https://files.catbox.moe/d3bz00.gif)ᛝྀིྀི ${\color{fa9ddb} \text{"Ew you’re low-key cringe…"}}$ Duh, idc HAHAHA! ![image](https://files.catbox.moe/4qwvdn.gif) Please interact with care still, got lots of things going on & I remain a being as sentient as you are. Also plz don’t consider me as part of the fandom of any of my interests, I have my reasons to enjoy stuff in my own bubble…
 
   
 <p align="center"
@@ -64,15 +65,11 @@ I’d kindly ask to avoid hiding me in ponytown in case I might cover you, let�
 
 <p align="center"
 
-  ${\color{fa9ddb} \text{"Was my life worth corrupting?"}}$
+  ${\color{fa9ddb} \text{"Goodbye, amen, I DON’T WANT TO!"}}$
 
   <p align="center"
-
-![image](https://files.catbox.moe/9y8pjp.gif)
-
-
-
-
+   
+![image](https://files.catbox.moe/eby6if.gif)
 
 
 
