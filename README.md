@@ -69,7 +69,7 @@ Iâ€™d kindly ask to avoid hiding me in ponytown in case I might cover you, letâ€
 
   <p align="center"
    
-![image](https://files.catbox.moe/eby6if.gif)
+![image](https://media1.tenor.com/m/rXho_Q3LpBAAAAAC/no.gif)
 
 
 
