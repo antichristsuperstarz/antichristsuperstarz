@@ -8,7 +8,7 @@
 
  <p align="center"
    
- ${\color{fa9ddb} \text{"Fell from heaven to ruin your life."}}$
+ ${\color{fa9ddb} \text{"Chemical synergy, monster energy, rotten strawberry, sweet toxicity, contradictory, you make time for me I fade Q1eT#Y?!-"}}$
 
 
   <p align="center"
@@ -19,7 +19,7 @@
 
   <p align="center"
 
-![image](https://watermelon.crd.co/assets/images/gallery03/9cc3f38c.gif?)ᛝྀིྀིA little bunny who wished to be a superstar but fell in the claws of the circus! I promise I don't bite but if you're unwelcome, ${\color{fa9ddb} \text{I’LL SEND YOU TO THE BUTCHER.}}$ My strawpaw shares the about me, take a look!
+![image](https://watermelon.crd.co/assets/images/gallery03/9cc3f38c.gif?)ᛝྀིྀིTried to be an internet angel but failing miserably as a dumb hikkikomori. I promise I don't bite but if you're unwelcome, ${\color{fa9ddb} \text{I’LL PUT A DEADLY HEX ON YOU.}}$ My strawpaw shares the about me, take a look!
 
 ![image](https://64.media.tumblr.com/b1861c14d62dfdafa4262ae0e1b77d16/82f062ad64b65975-03/s250x400/a5d186ea24f659ac229509f0ba05bc06cbee8cbc.gif) ${\color{fa9ddb} \text{“Have you looked at the mirror lately?”}}$
 
