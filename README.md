@@ -8,7 +8,7 @@
 
  <p align="center"
    
- ${\color{fa9ddb} \text{"Chemical synergy, monster energy, rotten strawberry, sweet toxicity, contradictory, you make time for me I fade Q1eT#Y?!-"}}$
+ ${\color{fa9ddb} \text{"Chemical synergy, monster energy, rotten strawberry, sweet toxicity,}}$ ${\color{fa9ddb} \text{contradictory, you make time for me I fade Q1eT/Y?!-”}}$
 
 
   <p align="center"
@@ -64,7 +64,7 @@ I’d kindly ask to avoid hiding me in ponytown in case I might cover you, let�
 
 <p align="center"
 
-  ${\color{fa9ddb} \text{"Hop, hop running away with dirt on your little paws."}}$
+  ${\color{fa9ddb} \text{"Was my life worth corrupting?"}}$
 
   <p align="center"
 
